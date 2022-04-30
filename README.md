@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GARAGARZA21
 - 👀 I’m interested in swords
-- 🌱 I’m currently learning police officer
+- 🌱 I’m currently learning to be a police officer
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me nuevo laredo
 
